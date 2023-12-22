@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Muhammad Qasim @mqasimkh
+- I am an electrical engineer, solo entrepreneur, and web developer who loves troubleshooting gadgets and creating awesome stuff on the internet.
+- You can contact me at my email: muhammad@alltech.how
